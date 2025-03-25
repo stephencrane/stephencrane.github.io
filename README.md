@@ -1,1 +1,1 @@
-Stephen Crane, Indie App Developer, macOS and iOS
+Stephen Crane, Indie App Developer, macOS and iOS 
